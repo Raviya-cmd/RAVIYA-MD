@@ -1,2 +1,2 @@
-# RAVIYA-MD
-RAVIYA-MD FREE BOT🔴
+# Nowty-Raviya-
+Whatsappp bot Nowty Raviya 
